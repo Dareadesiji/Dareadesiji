@@ -18,7 +18,7 @@ With extensive experience in customer service and sales, I have developed a keen
 ## Education and Certifications
 
 - **Postgraduate Certificate in Business and Data Analysis** (Conestoga College, 2025)  
-- **Bachelor’s Degree in Linguistics** (Obafemi Awolowo University, 2018, GPA: 3.68)  
+- **Bachelor’s Degree in Linguistics** (Obafemi Awolowo University, 2018. (Second Class Honor Division). x
 - Certifications: Shopify, Global Management in HRM, First Aid/CPR, and Workplace Health and Safety Awareness.
 
 ## Let’s Connect!
