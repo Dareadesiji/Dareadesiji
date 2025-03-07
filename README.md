@@ -1,6 +1,6 @@
 # About Me
 
-Hello! 👋 I'm Adesiji Dare Yomi, a passionate and results-driven **Data Analyst** with a strong academic foundation and hands-on experience in data-driven problem-solving. Currently pursuing a **Postgraduate Certificate in Business and Data Analysis** at Conestoga College,and an Intership at IJAN AFRICA I am equipped with the technical skills and business acumen required to deliver actionable insights that drive growth and efficiency.
+Hello! 👋 I'm Adesiji Dare Yomi, a passionate and results-driven as a Business and **Data Analyst** with a strong academic foundation and hands-on experience in data-driven problem-solving. Currently pursuing a **Postgraduate Certificate in Business and Data Analysis** at Conestoga College,and an Intership at IJAN AFRICA I am equipped with the technical skills and business acumen required to deliver actionable insights that drive growth and efficiency.
 
 ## Why I’m a Great Fit for Your Data Analyst Role
 
