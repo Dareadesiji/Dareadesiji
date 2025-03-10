@@ -24,6 +24,19 @@ With extensive experience in customer data analysis(PepsiCo) Microfinanace Bank 
 ## Let’s Connect!
 
 I'm always eager to collaborate on exciting projects, solve challenging problems, and contribute to meaningful data initiatives. If you’re looking for a dedicated data analyst with a proven track record of delivering results, feel free to reach out or explore my repositories for a glimpse into my work!
+Sure! Here’s a proverb-style motivation that can inspire those interested in **Business and Data Analysis**:  
+
+"A river that knows its course never runs dry; data that is well-analyzed never loses its value."
+
+Just like a river finds its way to the ocean, guiding businesses with data ensures steady growth and success. In today’s world, those who master the art of **analyzing trends, uncovering insights, and making data-driven decisions** will always be in demand.  
+
+The key is consistency, curiosity, and the right tools—because in the language of business, **data speaks the loudest!  
+
+📊💡 Keep learning, keep analyzing, and let data be your compass to success!  
+
+#BusinessAnalysis #DataAnalytics #WisdomInNumbers #GrowthThroughData  
+
+
 
 📩 Email: dareyomiadesiji@gmail.com  
 📍 Location: Kitchener, Ontario, Canada
